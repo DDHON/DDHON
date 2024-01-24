@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **ramadhonimuhammad612@gmail.com**
 
-- ⚡ Fun fact **Relentless developer committed to achieving goals with unwavering dedication, giving 110% to every project.**
+- ⚡ Fun fact **Approachable and easygoing, I'm someone who loves to connect and make friends effortlessly.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
